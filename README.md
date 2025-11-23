@@ -1,4 +1,3 @@
-# nadan-nibbles
 Nadan Nibbles: Bringing the Heart of Kerala’s Kitchen to Your Table
 
 In an era where fresh culinary trends emerge daily, Nadan Nibbles opts to preserve something enduring—Kerala’s classic tastes. Rather than altering recipes merely to be trendy, this eatery emphasizes what is genuinely important: meals that are authentic, soothing, and evoke a sense of home.
